@@ -3,14 +3,6 @@
 France - Angleterre. À quelle heure et sur quelle chaîne voir le Crunch du Tournoi des 6 Nations ?
 Le XV de France achève son Tournoi 2024 par le traditionnel Crunch face à l’Angleterre ce samedi. Horaire, diffusion TV… Voici tout ce que vous devez savoir pour suivre cette rencontre.
 
-===========================
-
-🔴📺DIRECT📲👉 https://onlinestreamshd.com/six-nations/
-
-🔴📺DIRECT📲👉 https://onlinestreamshd.com/six-nations/
-
-===========================
-
 France - Angleterre. À quelle heure et sur quelle chaîne voir le Crunch du Tournoi des 6 Nations ?
 Le XV de France achève son Tournoi 2024 par le traditionnel Crunch face à l’Angleterre ce samedi. Horaire, diffusion TV… Voici tout ce que vous devez savoir pour suivre cette rencontre.
 
